@@ -1,0 +1,1 @@
+Our resume builder is tailored for independent job seekers looking to craft professional resumes. Input your information, preview different templates, and download your resume instantly. Perfect for those who want a hands-on approach to showcasing their skills and experience.
